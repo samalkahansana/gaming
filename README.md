@@ -1,1 +1,1 @@
-# gaming
+# samalka.github.io
